@@ -18,5 +18,5 @@ vous pouvez tout regarder : tous les plats qu'il y aura ça sera délicieux merc
                                                                                                                         pour fair un humberguer:
                                                                                                                         vous alles dans un magasin,
                                                                                                                         vous achetes tu pain a humberguer,
-                                                                                                                        le fromage a humberguer ,s s'appel le chesse,
+                                                                                                                        le fromage a humberguer , s'appel le chesse,
                                                                                                                         Vous faittes cuiree le steek.
